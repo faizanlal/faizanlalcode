@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **faizanlal563@gmail.com**
 
-- ⚡ Fun fact **I am a mad guy i think so because l love to learn new things**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
